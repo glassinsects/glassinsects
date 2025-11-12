@@ -22,3 +22,4 @@
   
 <p align="center"> <img src="https://64.media.tumblr.com/bbc5edc7b88d80483201d86c973be750/4bcaba5d635ef538-eb/s250x400/7e1fa24c9d94abab1abd5f766237daea3add64a8.pnj">
 <p align="center"> <img src="https://64.media.tumblr.com/381851bfcbac0f4e0c8bb71d339e3a56/32c2a627a90c915e-87/s250x400/96a11f2eb9accb4d1a4bb492ebe36cde9334790b.gifv">
+<p align="center"> <img src=https://dividers.crd.co/assets/images/gallery03/9dbb3f87.png?v=05d33f91">
