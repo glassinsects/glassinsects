@@ -1,27 +1,23 @@
-<p align="center"> <img src="https://64.media.tumblr.com/946eb49272626706f0b36fd4dca63b5d/52dd91f8ba66aa75-ca/s250x400/32a14218ec65505a07fb8b940f61af93bc5c8737.pnj">
-<p align="center"> <img src="https://dividers.crd.co/assets/images/gallery03/54510155.gif?v=05d33f91"><img src="https://dividers.crd.co/assets/images/gallery03/6b811f16.gif?v=05d33f91"><img src="https://dividers.crd.co/assets/images/gallery03/54510155.gif?v=05d33f91">
-  
-  
-  
- ***
+
+<p align="center"> <img src="https://64.media.tumblr.com/311534652a1ea41bb0df05d6ec5d7db5/ab09cd1168144eed-54/s640x960/befc84601494a9f7f21369eca35d17cf8673035c.pnj">
+<p align="center"><img src="https://64.media.tumblr.com/dc877ccc8e64426f95a0ec44fb7048bd/0717a5d3ec05b65c-1a/s250x400/3e70498ba6223408f2d76426cd899df2f758a542.pnj">
+<p align="center"> <img src="https://64.media.tumblr.com/42f8620ec311f87343df4b65821a3ca5/48e3fb24446db3d3-ae/s250x400/57d5d277be6d6952a52f9429171f5495f1c51828.webp">
+
+ 
  
 
- <p align="center"> <img src="https://64.media.tumblr.com/044176509ccc45a4f3b0e545f31d8fd2/bb4e08a897f0d57f-c6/s250x400/cda69b9f07048553759eed9e6a2acf29169ff0ce.webp"><img src="https://afroken.neocities.org/GRAPHICS/BLINKIES/donutaholic.gif"><img src="https://afroken.neocities.org/GRAPHICS/BLINKIES/getbettersoon.gif"><img src="https://64.media.tumblr.com/cd7dfcb5b43e0f3dfbb6933fefa076d4/b53bc53f47227da5-50/s250x400/0ac8eff6554289bc55f7b901ed30e0700f1336de.gifv"><img src="https://64.media.tumblr.com/c4de2f8fedcd174c70aca2ed6d9567f5/ee5c42c954728450-be/s250x400/075345886ba28df520a2451cd2ad01eb78a47d96.gifv"><img src="https://64.media.tumblr.com/83e84ea55e2dc975d6e861e05fb50f2a/6c2e2d9dd9eb262f-b7/s250x400/5a361781f21659bfec71f2544c964ef27dd53600.gifv"><img src="https://64.media.tumblr.com/f1cacf50ec70c40a52dcc718412f5840/244fdab6b045e016-07/s250x400/8530d08224fd26de15a948c895720e52865c3f7d.gifv">
-
-<p align="center"> hi everypony ^_^ im nobu  ₍ᐢ. ̫ .ᐢ₎ <img src="https://xyz.crd.co/assets/images/gallery21/4596a5e2.gif?v=de6feabd"> and im a weird and wacky worldwideweb oddity girl!! <img src="https://64.media.tumblr.com/06cd51aef4e9912a0ac81aa845644864/02a67312cf565e8b-4e/s75x75_c1/2bbee31d5a3595fb33be23e47e43120c41a87104.gifv">
-<p align="center"> <img src="https://64.media.tumblr.com/f0aead3ecba5fdfdb6924a5c2357ab97/5bde89fb1ffcd1fc-0e/s250x400/993bc12fa7905f53985dd774ac950a76debe6107.gifv">
-<p align="center"> im insane but im super nice and kind so dont hesitate to interact with me/c + h!! and bmf!! <img src="https://pixels.crd.co/assets/images/gallery34/b602a440.gif?v=29416114"> i don't really have a dni other than if you're a dick to me for no reason, i like what i like and i dont care about your stupid negative opinion! <img src="https://xyz.crd.co/assets/images/gallery12/c7f2ea14.gif?v=de6feabd"> + im literally the sweetest person ever why are you gonna be mean to me!!! <img src="https://pixels.crd.co/assets/images/gallery28/f6c0a3d6.gif?v=29416114"> feel free to say hi! i dont bite i swear!!! (might be afk so whisper me lol!!!!!!) <img src="https://popteamepic.carrd.co/assets/images/gallery83/56095d4d.gif?v10408301085951">
-<p align="center"> 
-<p align="center"> <img src="https://xyz.crd.co/assets/images/gallery01/44f73c1e.gif?v=de6feabd"> hide me if u want... minors & meanies dni pls <img src="https://64.media.tumblr.com/9bcc6d690d7d27c95dace36fb0456500/56a192fbf5597b6c-95/s75x75_c1/dbe6126981aceef780f7d014108ab0ec47a5519a.gifv">
-<p align="center"> <img src="https://64.media.tumblr.com/6208ec1372fda89a03a017b7d0e4f162/96872098c3c5a16a-98/s250x400/71b3177a2ee3dca0aece2feb36cb365006bd10ca.gifv">
-
-
-***
-
-<p align="center"> <img src="https://dividers.crd.co/assets/images/gallery03/54510155.gif?v=05d33f91"><img src="https://dividers.crd.co/assets/images/gallery03/6b811f16.gif?v=05d33f91"><img src="https://dividers.crd.co/assets/images/gallery03/54510155.gif?v=05d33f91">
+<p align="center"> <img src="https://64.media.tumblr.com/fb0eea5fbaf79a414cca469327aeeda7/3f9df9d509df3664-23/s75x75_c1/cfd29cb80f7bb21ec6b43724220264d9e7a37a8a.gifv"> weird and wacky oddity girl, im insane and EVIL! if you dont like that hide me lol!!! <img src="https://64.media.tumblr.com/740bdd1be43962815540422417032af6/cf53b60cec017c02-12/s75x75_c1/ae5f94ec017ebf8ba21524d6ea358a9a2fdf8ce8.gifv"> 
+  <p align="center"> <img src="https://mocha.crd.co/assets/images/gallery23/300b87b4.png?v=169e5b53"> no dni other than if youre a dick or a minor, i like what i like and i dont care about your stupid opinion <img src="https://missskunky-graphics.neocities.org/assets/graphics/pixels/comet.gif">  
   
-<p align="center"> <img src="https://64.media.tumblr.com/b8e06f0df466811dc60ea19604d28514/bc6c942880168ead-12/s100x200/2e2f7021d427da2d79413f38eb04daa29b2b4e32.pnj"><img src="https://i.ibb.co/xHMs3LZ/tumblr-9a7e784aa08c331c2772f423b418e416-060e68fb-100.png"><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b14c77e0-8e91-40b4-9210-60e308384c51/da6fshs-9ef1bfda-f59b-4dc7-879e-7d7d05e0d67a.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9iMTRjNzdlMC04ZTkxLTQwYjQtOTIxMC02MGUzMDgzODRjNTEvZGE2ZnNocy05ZWYxYmZkYS1mNTliLTRkYzctODc5ZS03ZDdkMDVlMGQ2N2EucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.NFBNnU4FW-wDcYXdyMXR5SjT0jgNrePWwOiHEQk54BM"><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/d4fde835-d507-4572-965a-0e662f7c0d64/djzwl4i-0081889b-9dac-4677-b8fc-c705f76729b8.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9kNGZkZTgzNS1kNTA3LTQ1NzItOTY1YS0wZTY2MmY3YzBkNjQvZGp6d2w0aS0wMDgxODg5Yi05ZGFjLTQ2NzctYjhmYy1jNzA1Zjc2NzI5YjguZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.AWVvh-cL1QedjaNy03di791jRQyyKPCGOYpST0C17pg"><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/96292153-c907-4dfc-ac08-68cb86ad51df/dj5ulhh-482da7c4-0fe4-40b0-84db-90609d3dfb87.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi85NjI5MjE1My1jOTA3LTRkZmMtYWMwOC02OGNiODZhZDUxZGYvZGo1dWxoaC00ODJkYTdjNC0wZmU0LTQwYjAtODRkYi05MDYwOWQzZGZiODcucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.mVVQ5OIJ7-A1cd099skjfdPMqTPgb6m2MsyiSfP9DF8"><img src="https://64.media.tumblr.com/73f1698d2b379520bc0e3147f812d608/3347c16333dd2347-d4/s100x200/0caa3c85d235eda24d9e51fc1a9220fe2aa32d1f.pnj"><img src="https://64.media.tumblr.com/106f9e3d2d439c87efda7f802f101e38/659d822466175fd3-f2/s100x200/580b3a74e432e2947240f1de5c3d4900f8a2ecad.gifv"><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/fee0b139-c44c-4937-a091-77416388e462/d46g8r5-55fe8378-204e-49d9-801d-9e250c98e0c7.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2ZlZTBiMTM5LWM0NGMtNDkzNy1hMDkxLTc3NDE2Mzg4ZTQ2MlwvZDQ2ZzhyNS01NWZlODM3OC0yMDRlLTQ5ZDktODAxZC05ZTI1MGM5OGUwYzcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.03IrVblC1EnQnotZXkhb8UcdwxsrRQQG3_4fQdwpZIk">
-  
+  <p align="center"><img src="https://64.media.tumblr.com/ea5f57df303b1723ba04df9260e4f449/6ed654228224c324-76/s75x75_c1/dd17dae85d1372623f826f390ca18dd38864f8eb.gifv"> feel free to int/c+h n stuff <img src="https://64.media.tumblr.com/2674c26d5f457bedfebe85345402b4ba/5ffa52ee99932219-03/s75x75_c1/0b66bd3acf8ca56aa5e903bc96eaace4ca254f5c.gifv"> whisp me & bmf!!! <img src="https://64.media.tumblr.com/471f62148dbe7780f881d2374195beb3/6ed654228224c324-f2/s75x75_c1/5949c3751d7386d3d4e204e3626a09af2de4246a.gifv">
 
-<p align="center"> <img src="https://64.media.tumblr.com/381851bfcbac0f4e0c8bb71d339e3a56/32c2a627a90c915e-87/s250x400/96a11f2eb9accb4d1a4bb492ebe36cde9334790b.gifv">
-<p align="center"> <img src=https://dividers.crd.co/assets/images/gallery03/9dbb3f87.png?v=05d33f91">
+<p align="center"> working on strawpage 
+<p align="center"> <img src="https://64.media.tumblr.com/eeaeba97c4dc65176159559e0027d7fc/db7ce6708c01e3ab-4a/s75x75_c1/1b8e1491c49ecb1a79aabfd8c97a9397f24d1fa7.gifv"> 
+ 
+
+  <p align="center"> <img src="https://64.media.tumblr.com/8dcf34722df5d0cb2494939ea176e00c/47dc1581504506b7-1b/s250x400/bdf6d5c7b98b411220408ed192de8c114b2dfde6.pnj">
+  
+ 
+ 
+  <p align="center"> <img src="https://64.media.tumblr.com/f0f51fb2bd564a18706ca97f37e28b01/ab09cd1168144eed-3c/s640x960/34419b2c77617a16e9a079e67a4b5998b2167413.pnj">
+    
